@@ -1,6 +1,6 @@
 <div align="center">
   
-<img src="https://img.sanishtech.com/u/d73619de1436ddaa34b3e8883172b417.jpg" alt="1000042641" width="1472" height="988" loading="lazy" style="max-width:100%;height:auto;">
+<a href="https://ibb.co.com/XrGswGjd"><img src="https://i.ibb.co.com/0RzMwzmW/Tak-berjudul3-20260502164936.png" alt="Tak-berjudul3-20260502164936" border="0"></a><br /><a target='_blank' href='https://id.imgbb.com/'>simpan gambar online gratis</a><br />
   
   #### <sub>[*MyStrawPage*](https://saintkerosene.straw.page)<div align="center">
 
